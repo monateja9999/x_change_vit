@@ -1,1 +1,1 @@
-# X Change VIT - WEB AND MOBILE APPLICATIONS
+# X Change VIT
